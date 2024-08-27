@@ -1,6 +1,7 @@
 <h1 align="center">Hi! I'm Chutima 👋 </h1>
 
-![Chutima Puthachon (1)](https://github.com/user-attachments/assets/2208d14d-2a16-43cc-865d-19dcb04ecb03)
+![Chutima Puthachon (1)](https://github.com/user-attachments/assets/dc54fc84-3528-4d23-b0f4-c95720e3ac96)
+
 
 ---
 
